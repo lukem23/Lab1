@@ -11,3 +11,4 @@ Things Luke Loved to do:
 
 Please donate to his gofundme to fund the funeral [Luke's GoFundMe](https://gofundme.com/skleptthelegend)
 /n **He will be dearly missed**
+Our hearts go out to his kind soul
